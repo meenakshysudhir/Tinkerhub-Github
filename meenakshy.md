@@ -1,2 +1,1 @@
-## Hello My name is Devaj krishna 
-## iam coming from kozhikode
+## Hello My name is Meenakshy Sudhir
